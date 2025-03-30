@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning to doubt Camus
 - 💞️ I’m looking to collaborate on assisted suicide 
 - 📫 How to reach me, don't
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: I am either the best or worst programmer in human history 
+- 😄 Pronouns: all (is allegedly pan)
+- ⚡ Fun fact: I am become bug
 
 <!---
 Aurora-1738/Aurora-1738 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
