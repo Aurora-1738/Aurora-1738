@@ -5,6 +5,7 @@
 - 📫 How to reach me, don't
 - 😄 Pronouns: he him, 🍳(I guess...)
 - ⚡ Fun fact: I am become bug
+- 🙏 Praise Terry 
 
 <!---
 Aurora-1738/Aurora-1738 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
