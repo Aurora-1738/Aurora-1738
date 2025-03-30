@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aurora-1738
 - 👀 I’m interested in pushing large stones up steep hills 
-- 🌱 I’m currently learning new levels of hate for our industry 
+- 🌱 I’m currently learning to doubt Camus
 - 💞️ I’m looking to collaborate on assisted suicide 
 - 📫 How to reach me, don't
 - 😄 Pronouns: he/him
