@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aurora-1738
-- 👀 I’m interested in finding productive and novel uses for AI that do not give the end users and devs cancer(Sisyphus would be proud) 
+- 👀 I’m interested in pushing large stones up steep hills 
 - 🌱 I’m currently learning new levels of hate for our industry 
 - 💞️ I’m looking to collaborate on assisted suicide 
 - 📫 How to reach me, don't
