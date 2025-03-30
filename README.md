@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning to doubt Camus
 - 💞️ I’m looking to collaborate on assisted suicide 
 - 📫 How to reach me, don't
-- 😄 Pronouns: all (is allegedly pan)
+- 😄 Pronouns: he him
+-     (is allegedly pan)
 - ⚡ Fun fact: I am become bug
 
 <!---
